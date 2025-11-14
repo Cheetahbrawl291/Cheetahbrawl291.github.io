@@ -1,2 +1,8 @@
 # Cheetahbrawl291.github.io
-My Webpage about me on the Internet
+Rules:
+No Swear words
+be polite
+if you want to Contact me go to Contact Project (Not yet available)
+do not spam Projects
+Thank you! :D
+
